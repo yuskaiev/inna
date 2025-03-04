@@ -1,0 +1,1 @@
+File story inna life
